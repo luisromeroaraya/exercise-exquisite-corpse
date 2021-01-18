@@ -47,4 +47,4 @@ L'idée était de réunir tout le monde, c'est ce qu'il a fait:
 
 Ils étaient tous émus. Au vu de l'age très avancé des seuls personnes en vie, il prirent la commune décision de léguer cette richesse à Fred. Interloqué, il ne savait pas quoi dire mais il *refusa* gentiment cette proposition. Sauf que ce n'était pas un choix ! Les frères et soeurs réunis après aussi longtemns étaient tellement reconnaissants envers Fred pour ces retrouvailles qui pour eux était **la plus grande des richesses** ! Face à cette position ferme, Fred ne put rien d'autre qu'accepter cette faveur.
 
-Qui aurait pu deviner que la traque du passé à travers une lettre aux senteurs fannées pouvait changer le cours des choses aussi radicalement du jour au lendemain?
+Qui aurait pu deviner que la traque du passé à travers une lettre aux senteurs fannées pouvait changer le cours des choses aussi radicalement du jour au lendemain? 
