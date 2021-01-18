@@ -1,1 +1,1 @@
-# exercise-exquisite-corpse
+#'Fred contre le monde'
