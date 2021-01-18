@@ -13,12 +13,11 @@ Il était un homme solitaire, un parfait inconnu. Mais cela allait changer aujou
 ![Fred smelling letter](https://i.redd.it/ocq3iyp7xkgz.jpg)
 
 ## SITUATION
-
-En travaillant, il a vu un lettre dans un coin, qui avait l'air très vieux.
+en travaillant, il a vu un lettre dans un coin, qui avait l'air très vieux.
 Bien sûr qu'il devrait le regarder. C'était datée de 1900. Et mêmme en recherchant, il n'a pas pu trouver le destinataire ou un personne de la famille avec qui il pouvait parler et le donner.
 Alors, il a décidé l'ouvir et a vu que il y avait des petits messages sécrets là-dedans pour recevoir beaucoup argent
 
 
 ## PROBLEME
-
+Mais le soucis c'est que la lettre lui averti qu'ils avaient d'autres frères et soeurs et que s'il voulait reçevoir l'argent il devait réunir tout le monde au meme endroit.n'ayant jamais connu ses frères et soeurs il ne savait pas par ou commencer.
 ## RESOLUTION
